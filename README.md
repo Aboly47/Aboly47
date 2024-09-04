@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Chess Engines, AI Projects.
 - 📫 How to reach me abolfazlmalekpour47@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I don't have one.
+- ⚡ Fun fact: I don't have any.
 - Why does my profile picture look like a beard?
 
 <!---
